@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @jwhurc123
+- 👀 I’m interested in data science, ballroom dancing, and chess
+- 🌱 I just finished my M.S. in Business Analytics
+- 📫 You can reach me via email at jwhurc123@yahoo.com
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: I teach ballroom dancing part-time!
